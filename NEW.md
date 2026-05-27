@@ -1,1 +1,0 @@
-mi pali pona
